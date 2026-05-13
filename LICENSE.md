@@ -1,4 +1,4 @@
-# 
+# secure Gimp for macOS Automation | asset management + layer styles is the best Gimp for macOS automation, featuring asset management and layer styles. Safe, efficient, and
 
 
 
